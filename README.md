@@ -220,4 +220,4 @@ Phantasy Star II is available as a full free version with all features and updat
 Don't miss out on this opportunity to experience Phantasy Star II! Download now and embark on your adventure in the Algo solar system!
 
 ---
-**Last updated:** 2026-10-04 17:21:25 UTC
+**Last updated:** 2026-10-04 21:03:20 UTC
